@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BassemBKh
+- 👋 Hi, I’m Bassem Barakat
 - 👀 I’m interested in Reading, watching movies, & playing football. 
 - 🌱 I’m currently learning Electrical designs.
 - 📫 How to reach me: eng.basem.b@gmail.com
